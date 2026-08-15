@@ -8,6 +8,8 @@
 
  basic boundaries or whatever, dont be weird and we're good 👍
 
+ under 18 DNI
+
 ――――――――――――――――――――――――――――――――――――――――――――――――――――――――――――――――――――――――――――――――――――――――――――
 
 ## » -[Mad Tsai - DA DA DA](https://www.youtube.com/watch?v=3H2xTH88znQ)- «

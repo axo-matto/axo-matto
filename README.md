@@ -7,7 +7,7 @@
 
  chronic yapper and bully of [relic](https://github.com/scorncide)
 
- basic boundaries or whatever, dont be weird and we're good 👍
+ basic boundaries or whatever, don't be weird and we're good 👍
 
  under 18 DNI
 

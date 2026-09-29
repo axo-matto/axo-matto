@@ -1,7 +1,5 @@
 ##  too unmedicated to make this look cool blehh
 <img width="2040" height="300" alt="tumblr_59ede8d867742bb743a1717668e1d883_426fbb20_2048" src="https://github.com/user-attachments/assets/9a78ccea-e3c4-4fa7-9b64-978b72b30bab" />
-<img width="1280" height="213" alt="tumblr_89255860c123fb5fe793247d4804d7be_920d9c88_1280" src="https://github.com/user-attachments/assets/51c879c8-0fcb-479a-aab5-f35a4b41dc8b" />
-
 
 
 
@@ -15,7 +13,7 @@ if you recognize my cosplay skins or fandoms def int bats eyelashes at
 
 
 <img width="2040" height="300" alt="tumblr_59ede8d867742bb743a1717668e1d883_426fbb20_2048" src="https://github.com/user-attachments/assets/85444eb3-cdbb-4462-acfd-3aa65d747e20" />
-<img width="1280" height="213" alt="tumblr_89255860c123fb5fe793247d4804d7be_920d9c88_1280" src="https://github.com/user-attachments/assets/6d2b6eec-a2d2-409a-8539-928eb0fe3657" />
+
 
 
 ## » [Mailman by Evan Fong](https://www.youtube.com/watch?v=qKUW51BOJy8) «
